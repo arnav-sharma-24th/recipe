@@ -1,0 +1,3 @@
+Boil the water.
+Break noodle cake into quarters. Cook in 1½ cups (375mL) of boiling water on stove top for 2 minutes.
+Stir in contents of flavour sachet and enjoy! Serve with or without broth as desired. ...
